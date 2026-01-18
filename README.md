@@ -1,4 +1,4 @@
-巨魔商店2在线免费签永久安装地址：https://jm.jumo2.com/
+#巨魔商店2在线免费签永久安装地址：https://jm.jumo2.com/
 官网：https://jumo2.com/
 推荐前往ipa商店获取资源  https://ipa.jumo2.com/
 功能特点
@@ -12,5 +12,3 @@
 支持大部分IPA文件安装
 简洁易用的用户界面
 
-![Uploading git01.png…]()
-https://jm.jumo2.com/O1CN011nsgpr1Dt5BLzy3Eh_!!2214690130273.heic.jpeg
